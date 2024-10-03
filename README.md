@@ -39,3 +39,8 @@ Com isso, encerro mais uma análise, combinando duas grandes ferramentas — MyS
 
 ![Captura de tela 2024-10-01 154225](https://github.com/user-attachments/assets/4b43a70a-c3df-4b57-a5cb-983b3a92d632)
 ![Captura de tela 2024-10-01 154205](https://github.com/user-attachments/assets/47b8c48c-3255-4628-866a-100b15484f60)
+![Captura de tela 2024-10-03 184757](https://github.com/user-attachments/assets/7562f0c9-824d-4a54-9377-e715746238ce)
+![Captura de tela 2024-10-03 184748](https://github.com/user-attachments/assets/9a353b9a-f8ae-433c-bf9c-fd29fcfc86fd)
+![Captura de tela 2024-10-03 184726](https://github.com/user-attachments/assets/4262d869-286f-40f6-b0cf-0eda11bb1b98)
+![Captura de tela 2024-10-03 184659](https://github.com/user-attachments/assets/44987499-3f55-415f-a356-92e55759ff4b)
+
